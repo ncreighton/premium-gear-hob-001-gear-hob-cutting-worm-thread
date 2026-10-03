@@ -1,0 +1,2 @@
+# premium-gear-hob-001-gear-hob-cutting-worm-thread
+Tired of juggling spreadsheets, scattered notes, and lost specs for every gear hob and worm thread project? Your precision work deserves a single source of truth.  The Gear Hob Cutting &amp; Worm Thread Craft Hub is a Notion template built specifically to centralize every aspect of your hob cutting and worm thread workflow. Eliminate data silos, reduce
